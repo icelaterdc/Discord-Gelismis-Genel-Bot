@@ -1,1 +1,1 @@
-# ⭐ Bu Repo 10 Starda Paylaşılacak
+# ⭐ Bu Repo 10 Starda Paylaşılacak (HAZIRLANIYOR)
